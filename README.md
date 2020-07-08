@@ -1,0 +1,7 @@
+# PlanThai
+
+## Team members
+
+	* Mr.KIATISAK PETHOR
+	* Mr.CHAICHET PHAIBUNWITTHAYASAK
+	* Mr.VORAPOL CHAROENKITMONGKOL"# planthaifix" 
